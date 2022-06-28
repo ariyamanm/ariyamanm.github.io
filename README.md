@@ -1,1 +1,0 @@
-# ariyamanm.github.io
